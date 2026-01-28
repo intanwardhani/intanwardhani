@@ -1,6 +1,6 @@
 ## Committed to ethical tech 🍀
 
-I started my career in social sciences as a cognitive psychologist. After learning about the human brain, I decided to learn about the machine brain. My primary commitment in the tech world is to ideate, develop, create, and involve myself in ethical tech. It must be open, honest, and transparent. It must be resourced ethically and fairly. It must be environment-first and human-oriented. No big, empty talk about tech giants and billionaires. No supporting wars, colonisations, and all kinds of power-imbalanced offences. 
+I started my career in social sciences as a cognitive psychologist. After learning about the human brain, I decided to learn about the machine brain. My primary commitment in the tech world is to ideate, develop, create, and involve myself in ethical tech. It must be open, honest, and transparent. It must be resourced ethically, fairly, and sustainably. It must be environment-first and human-oriented. No big, empty talk about tech giants and billionaires. No supporting wars, colonisations, and all kinds of power-imbalanced offences. 
 
 ## What I like ❤️
 
