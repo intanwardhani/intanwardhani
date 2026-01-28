@@ -7,7 +7,7 @@ I started my career in social sciences as a cognitive psychologist. After learni
 <p align="center">A cosy chat and parallel play with family and friends, over good food and loungewear</p>
 <p align="center">Having balanced quality me-time and quality social-time</p>
 <p align="center">Perfect-temperature tea</p>
-<p align="center">Pixel art</p>
+<p align="center">Pixel art and books</p>
 <p align="center">Obsessed with: Stardew Valley</p>
 
 ## Hire me❔
