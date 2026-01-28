@@ -4,10 +4,10 @@ I started my career in social sciences as a cognitive psychologist. After learni
 
 ## What I like ❤️
 
-<p align="center">A cosy chat and parallel play with family and friends, over good food and loungewear</p>
+<p align="center">Cosy chats, parallel play, silent book club</p>
 <p align="center">Having balanced quality me-time and quality social-time</p>
 <p align="center">Perfect-temperature tea</p>
-<p align="center">Pixel art and books</p>
+<p align="center">Pixel art</p>
 <p align="center">Obsessed with: Stardew Valley</p>
 
 ## Hire me❔
@@ -23,7 +23,7 @@ I am currently following an intensive 7-month AI and Data Science bootcamp by [B
 
 ## Call me, maybe 📲
 
-If you want to collaborate with me, offer me a job opportunity, or hire me: Send me an email and/or ask for my mobile number. Communicating via emails is certainly good, but I will not hesitate to talk on the phone. Please give me a headsup before you call, so I know if I should pick up. I speak fluent English (unless my brain stops braining) and medium-rare East Flemish (i.e., Dutch).
+If you want to collaborate with me, offer me a job opportunity, or hire me: Send me an [email](mailto:65pg7f60e\@mozmail.com) and, if you want, ask for my mobile number. Communicating via emails is certainly good, but I will not hesitate to talk on the phone. Please give me a headsup before you call, so I know if I should pick up. I speak fluent English (unless my brain stops braining) and medium-rare East Flemish (i.e., Dutch).
 
 
 
