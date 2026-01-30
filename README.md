@@ -16,7 +16,7 @@ I am currently following an intensive 7-month AI and Data Science bootcamp by [B
   
 :electron: Data scientist  
 :electron: End-to-end data analyst  
-:electron: Data-related project  
+:electron: Data-related project management  
 :electron: Python developer  
 :electron: Personality hire (a joke, but I also won't get offended. Just know that I'm an introvert.)  
 
