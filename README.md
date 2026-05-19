@@ -10,9 +10,9 @@ I started my career in social sciences as a cognitive psychologist. After learni
 <p align="center">Pixel art</p>
 <p align="center">Obsessed with: Stardew Valley</p>
 
-## Hire me❔
+## Work with me ▶️
 
-I have just finished an intensive 7-month AI and Data Science bootcamp by [BeCode](https://becode.org/). All projects created during the bootcamp can be found in my repositories. I am aspiring to work in a small-to-medium-sized company. The roles I can do well:  
+I have finished an intensive 7-month AI and Data Science bootcamp by [BeCode](https://becode.org/). All projects created during the bootcamp can be found in my repositories. At the moment, I am doing an internship at Proximus Belgium to build an automated anomaly detector and corrector. The roles I can do well:  
   
 :electron: Data scientist  
 :electron: End-to-end data analyst  
@@ -22,7 +22,7 @@ I have just finished an intensive 7-month AI and Data Science bootcamp by [BeCod
 
 ## Call me, maybe 📲
 
-If you want to collaborate with me, offer me a job opportunity, or hire me: Send me an [email](mailto:65pg7f60e\@mozmail.com) and, if you want, ask for my mobile number. Communicating via emails is certainly good, but I will not hesitate to talk on the phone. Please give me a headsup before you call, so I know if I should pick up. I speak fluent English (unless my brain stops braining) and medium-rare East Flemish (i.e., Dutch).
+If you want to collaborate with me, offer me a job opportunity, or hire me: Send me an [email](mailto:snowspeckles\@hotmail.com) and, if you want, ask for my mobile number. Communicating via emails is certainly good, but I will not hesitate to talk on the phone. Please give me a headsup before you call, so I know if I should pick up. I speak fluent English (unless my brain stops braining) and medium-rare East Flemish (i.e., Dutch).
 
 
 
